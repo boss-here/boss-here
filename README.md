@@ -1,1 +1,1 @@
-## Sucking at something is the first step towards being good at something
+## I give myself permission to do what is right for me
