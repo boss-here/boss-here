@@ -1,1 +1,1 @@
-## I give myself permission to do what is right for me
+## Nothing is impossible. The word itself says 'I’m possible!'
