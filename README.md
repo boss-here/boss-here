@@ -1,1 +1,1 @@
-## You'll find a way
+## You know more than you knew yesterday
