@@ -1,1 +1,1 @@
-## I believe in you
+## The path to success is to take massive, determined action
