@@ -1,1 +1,1 @@
-## Your mind is full of brilliant ideas
+## People with goals succeed because they know where they’re going
