@@ -1,1 +1,1 @@
-## You know more than you knew yesterday
+## Struggling means you're learning
