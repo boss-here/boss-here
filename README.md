@@ -1,1 +1,1 @@
-## Struggling means you're learning
+## I admire you for taking this on
