@@ -1,1 +1,1 @@
-## Your life is about to be incredible
+## You're a smart cookie
