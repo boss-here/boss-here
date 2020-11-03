@@ -1,1 +1,1 @@
-## People with goals succeed because they know where they’re going
+## All you need is the plan, the roadmap, and the courage to press on to your destination
