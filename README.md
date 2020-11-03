@@ -1,1 +1,1 @@
-## The path to success is to take massive, determined action
+## Your life is about to be incredible
