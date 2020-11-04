@@ -1,1 +1,1 @@
-## Struggling is part of learning
+## I believe in you
