@@ -1,1 +1,1 @@
-## Success is the progressive realization of a worthy goal
+## Small progress is still progress
