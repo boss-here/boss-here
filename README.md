@@ -1,1 +1,1 @@
-## Small progress is still progress
+## Starting is the most difficult step - but you can do it
