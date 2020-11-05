@@ -1,1 +1,1 @@
-## Starting is the most difficult step - but you can do it
+## It's not a mistake, it's a learning opportunity
