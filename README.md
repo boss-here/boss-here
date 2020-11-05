@@ -1,1 +1,1 @@
-## It's not a mistake, it's a learning opportunity
+## Success is the progressive realization of a worthy goal
