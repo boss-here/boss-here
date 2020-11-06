@@ -1,1 +1,1 @@
-## You know more than you think
+## Don't forget to enjoy the journey
