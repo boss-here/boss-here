@@ -1,1 +1,1 @@
-## You're resourceful and clever
+## You're an inspiration
