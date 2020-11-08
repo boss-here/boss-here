@@ -1,1 +1,1 @@
-## You're an inspiration
+## I admire you for taking this on
