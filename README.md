@@ -1,1 +1,1 @@
-## You know more than you knew yesterday
+## If everything was easy you'd be bored
