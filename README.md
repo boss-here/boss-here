@@ -1,1 +1,1 @@
-## You know more than you think
+## Your life is already a miracle of chance waiting for you to shape its destiny
