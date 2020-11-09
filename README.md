@@ -1,1 +1,1 @@
-## You're a smart cookie
+## You know more than you think
