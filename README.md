@@ -1,1 +1,1 @@
-## Sucking at something is the first step towards being good at something
+## Don't worry if you find flaws in your past creations, it's because you've evolved
