@@ -1,1 +1,1 @@
-## Failure is just another way to learn how to do something right
+## You'll figure it out
