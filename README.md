@@ -1,1 +1,1 @@
-## We are all works in progress
+## You are worthy and deserving of respect
