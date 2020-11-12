@@ -1,1 +1,1 @@
-## You're doing a great job
+## Your life is already a miracle of chance waiting for you to shape its destiny
