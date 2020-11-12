@@ -1,1 +1,1 @@
-## Your life is already a miracle of chance waiting for you to shape its destiny
+## I give myself permission to do what is right for me
