@@ -1,1 +1,1 @@
-## Small progress is still progress
+## Sucking at something is the first step towards being good at something
