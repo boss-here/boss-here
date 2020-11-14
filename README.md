@@ -1,1 +1,1 @@
-## Your mind is full of brilliant ideas
+## Struggling is part of learning
