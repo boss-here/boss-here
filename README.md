@@ -1,1 +1,1 @@
-## Struggling is part of learning
+## Sucking at something is the first step towards being good at something
