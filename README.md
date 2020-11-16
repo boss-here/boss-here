@@ -1,1 +1,1 @@
-## Your life is already a miracle of chance waiting for you to shape its destiny
+## The past does not equal the future
