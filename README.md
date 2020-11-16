@@ -1,1 +1,1 @@
-## The past does not equal the future
+## Struggling means you're learning
