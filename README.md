@@ -1,1 +1,1 @@
-## Sucking at something is the first step towards being good at something
+## Your life is already a miracle of chance waiting for you to shape its destiny
