@@ -1,1 +1,1 @@
-## You are a capable human
+## Sucking at something is the first step towards being good at something
