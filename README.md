@@ -1,1 +1,1 @@
-## Don't forget to enjoy the journey
+## Your life is about to be incredible
