@@ -1,1 +1,1 @@
-## Struggling means you're learning
+## Don't forget to enjoy the journey
