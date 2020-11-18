@@ -1,1 +1,1 @@
-## It’s what you practice in private that you will be rewarded for in public
+## Sucking at something is the first step towards being good at something
