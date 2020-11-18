@@ -1,1 +1,1 @@
-## You know more than you think
+## It’s what you practice in private that you will be rewarded for in public
