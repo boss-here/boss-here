@@ -1,1 +1,1 @@
-## You know more than you knew yesterday
+## Small progress is still progress
