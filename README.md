@@ -1,1 +1,1 @@
-## It's not a mistake, it's a learning opportunity
+## You're resourceful and clever
