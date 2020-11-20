@@ -1,1 +1,1 @@
-## People with goals succeed because they know where they’re going
+## It's not a mistake, it's a learning opportunity
