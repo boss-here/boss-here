@@ -1,1 +1,1 @@
-## Don't worry if you find flaws in your past creations, it's because you've evolved
+## People with goals succeed because they know where they’re going
