@@ -1,1 +1,1 @@
-## Your mind is full of brilliant ideas
+## I give myself permission to do what is right for me
