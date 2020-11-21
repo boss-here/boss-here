@@ -1,1 +1,1 @@
-## You're resourceful and clever
+## Struggling means you're learning
