@@ -1,1 +1,1 @@
-## Struggling means you're learning
+## Your mind is full of brilliant ideas
