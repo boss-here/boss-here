@@ -1,1 +1,1 @@
-## Everything has cracks - that's how the light gets in
+## Mistakes don't make you less capable
