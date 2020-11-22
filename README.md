@@ -1,1 +1,1 @@
-## Mistakes don't make you less capable
+## You're a smart cookie
