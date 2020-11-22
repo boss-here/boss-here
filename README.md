@@ -1,1 +1,1 @@
-## You're a smart cookie
+## 10x engineers are a myth
