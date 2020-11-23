@@ -1,1 +1,1 @@
-## I'm rooting for you
+## Don't forget to enjoy the journey
