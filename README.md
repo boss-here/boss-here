@@ -1,1 +1,1 @@
-## 10x engineers are a myth
+## Your mind is full of brilliant ideas
