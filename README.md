@@ -1,1 +1,1 @@
-## Your mind is full of brilliant ideas
+## Mistakes don't make you less capable
