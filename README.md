@@ -1,1 +1,1 @@
-## Mistakes don't make you less capable
+## I'm rooting for you
