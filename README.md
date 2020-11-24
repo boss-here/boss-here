@@ -1,1 +1,1 @@
-## You got this
+## It is not a sprint, it is a marathon. One step at a time
