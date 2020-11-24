@@ -1,1 +1,1 @@
-## You are worthy and deserving of respect
+## Failure is just another way to learn how to do something right
