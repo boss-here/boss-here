@@ -1,1 +1,1 @@
-## Don't forget to enjoy the journey
+## You are worthy and deserving of respect
