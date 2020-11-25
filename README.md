@@ -1,1 +1,1 @@
-## All you need is the plan, the roadmap, and the courage to press on to your destination
+## Starting is the most difficult step - but you can do it
