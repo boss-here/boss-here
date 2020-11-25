@@ -1,1 +1,1 @@
-## It is not a sprint, it is a marathon. One step at a time
+## You're resourceful and clever
