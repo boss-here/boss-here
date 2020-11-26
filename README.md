@@ -1,1 +1,1 @@
-## Don't worry if you find flaws in your past creations, it's because you've evolved
+## Starting is the most difficult step - but you can do it
