@@ -1,1 +1,1 @@
-## Starting is the most difficult step - but you can do it
+## Failure is just another way to learn how to do something right
