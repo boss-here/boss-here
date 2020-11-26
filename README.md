@@ -1,1 +1,1 @@
-## Failure is just another way to learn how to do something right
+## It is not a sprint, it is a marathon. One step at a time
