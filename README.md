@@ -1,1 +1,1 @@
-## It is not a sprint, it is a marathon. One step at a time
+## Don't worry if you find flaws in your past creations, it's because you've evolved
