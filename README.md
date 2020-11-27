@@ -1,1 +1,1 @@
-## It is not a sprint, it is a marathon. One step at a time
+## 10x engineers are a myth
