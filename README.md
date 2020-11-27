@@ -1,1 +1,1 @@
-## 10x engineers are a myth
+## Don't worry if you find flaws in your past creations, it's because you've evolved
