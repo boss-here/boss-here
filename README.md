@@ -1,1 +1,1 @@
-## Don't worry if you find flaws in your past creations, it's because you've evolved
+## Whenever we’re afraid, it’s because we don’t know enough. If we understood enough, we would never be afraid
