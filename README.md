@@ -1,1 +1,1 @@
-## Whenever we’re afraid, it’s because we don’t know enough. If we understood enough, we would never be afraid
+## Struggling is part of learning
