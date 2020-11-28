@@ -1,1 +1,1 @@
-## Struggling is part of learning
+## You know more than you knew yesterday
