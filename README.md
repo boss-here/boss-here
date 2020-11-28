@@ -1,1 +1,1 @@
-## Your life is already a miracle of chance waiting for you to shape its destiny
+## The path to success is to take massive, determined action
