@@ -1,1 +1,1 @@
-## The past does not equal the future
+## We are all works in progress
