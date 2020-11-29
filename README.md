@@ -1,1 +1,1 @@
-## The path to success is to take massive, determined action
+## The past does not equal the future
