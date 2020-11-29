@@ -1,1 +1,1 @@
-## Struggling means you're learning
+## Success is the progressive realization of a worthy goal
