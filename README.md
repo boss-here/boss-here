@@ -1,1 +1,1 @@
-## We are all works in progress
+## Struggling means you're learning
