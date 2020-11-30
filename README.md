@@ -1,1 +1,1 @@
-## Struggling is part of learning
+## I admire you for taking this on
