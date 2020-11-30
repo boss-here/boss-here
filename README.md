@@ -1,1 +1,1 @@
-## Starting is the most difficult step - but you can do it
+## Struggling is part of learning
