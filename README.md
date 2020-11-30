@@ -1,1 +1,1 @@
-## Success is the progressive realization of a worthy goal
+## Sucking at something is the first step towards being good at something
