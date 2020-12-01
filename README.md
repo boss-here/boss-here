@@ -1,1 +1,1 @@
-## The opposite of courage in our society is not cowardice... it is conformity
+## I admire you for taking this on
