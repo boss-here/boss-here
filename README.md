@@ -1,1 +1,1 @@
-## I admire you for taking this on
+## Mistakes don't make you less capable
