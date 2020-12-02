@@ -1,1 +1,1 @@
-## Struggling is part of learning
+## You'll figure it out
