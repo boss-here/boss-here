@@ -1,1 +1,1 @@
-## Everything has cracks - that's how the light gets in
+## All you need is the plan, the roadmap, and the courage to press on to your destination
