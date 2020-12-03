@@ -1,1 +1,1 @@
-## All you need is the plan, the roadmap, and the courage to press on to your destination
+## Nothing is impossible. The word itself says 'I’m possible!'
