@@ -1,1 +1,1 @@
-## I give myself permission to do what is right for me
+## Don't forget to enjoy the journey
