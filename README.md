@@ -1,1 +1,1 @@
-## You're doing a great job
+## I give myself permission to do what is right for me
