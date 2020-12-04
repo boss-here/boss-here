@@ -1,1 +1,1 @@
-## Don't forget to enjoy the journey
+## Mistakes don't make you less capable
