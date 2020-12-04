@@ -1,1 +1,1 @@
-## Mistakes don't make you less capable
+## If everything was easy you'd be bored
