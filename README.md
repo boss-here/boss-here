@@ -1,1 +1,1 @@
-## If everything was easy you'd be bored
+## Your mind is full of brilliant ideas
