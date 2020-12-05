@@ -1,1 +1,1 @@
-## You are worthy and deserving of respect
+## I admire you for taking this on
