@@ -1,1 +1,1 @@
-## I admire you for taking this on
+## Don't forget to enjoy the journey
