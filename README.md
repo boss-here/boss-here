@@ -1,1 +1,1 @@
-## Your mind is full of brilliant ideas
+## You are worthy and deserving of respect
