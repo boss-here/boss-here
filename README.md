@@ -1,1 +1,1 @@
-## The past does not equal the future
+## Your mind is full of brilliant ideas
