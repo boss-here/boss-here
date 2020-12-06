@@ -1,1 +1,1 @@
-## Don't forget to enjoy the journey
+## I believe in you
