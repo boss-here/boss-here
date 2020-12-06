@@ -1,1 +1,1 @@
-## You'll figure it out
+## Don't forget to enjoy the journey
